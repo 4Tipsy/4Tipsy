@@ -1,5 +1,7 @@
-Autizm
+<img src="https://github.com/4Tipsy/4Tipsy/blob/main/baner.png" alt="uwu.png">
 
+
+для ебланов >>> http://2.59.41.120:1212/index.html
 
 
 
