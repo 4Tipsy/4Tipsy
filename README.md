@@ -1,5 +1,5 @@
-<img src="https://github.com/4Tipsy/4Tipsy/blob/main/baner.png" alt="uwu.png">
-
+Россия для грустных
+---
 
 для ебланов >>> http://2.59.41.120:1212/index.html
 
